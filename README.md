@@ -1,0 +1,1 @@
+Boombikes, a bike sharing company has recently suffered considerable losses due to ongoing Corona pandemic and wants to come up with a mindful business plan to be able to accelerate its revenue as soon as the ongoing lockdown comes to an end, and the economy restores to a healthy state
